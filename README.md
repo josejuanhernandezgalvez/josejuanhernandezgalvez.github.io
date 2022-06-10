@@ -1,1 +1,0 @@
-# josejuanhernandezgalvez.github.io
